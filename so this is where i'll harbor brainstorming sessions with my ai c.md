@@ -1,0 +1,1 @@
+so this is where i'll harbor brainstorming sessions with my ai chat, various questions and the thoughts that made me ask them, as well as vague research about the topics that may tangentially connect many of these thoughts or lead to new ones. 
